@@ -3,9 +3,8 @@
 You can also find me on:
 - [Battle.net](https://www.blizzard.com/en-us/)
 - Discord
-- Instagram 
-- Facebook
-- [Pornhub](https://www.pornhub.com/view_video.php?viewkey=ph5726fa9089769)
+- [Instagram](https://www.instagram.com/tudor.manea/)
+- [Facebook](https://www.facebook.com/tudor.manea.9/)
 
 ### What am I good at?
 
